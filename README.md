@@ -5,4 +5,4 @@ Support Waifuku
 https://waifuku.web.id/
 
 Support me
-https://sagirinime.com /Landing
+https://sagirinime.com/Landing

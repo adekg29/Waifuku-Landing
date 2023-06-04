@@ -2,7 +2,7 @@
 Bagi yang punya Website banyak Berbau Anime. Bisa gunakan ini untuk Petunjuk arah 
 
 DEMO
-https://adewakun.my.id/waifuku
+https://waifuku.moelogger.com/
 
 Support me
-https://hinanime.com/
+https://moebatch.com/
